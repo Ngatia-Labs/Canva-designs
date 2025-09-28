@@ -1,3 +1,4 @@
 # First pitch deck design
 https://www.canva.com/design/DAG0A735OSE/hi3YppBI1YgSqK7ZHF-Ozw/edit?utm_content=DAG0A735OSE&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 # Mine tech systems pitch deck
+https://www.canva.com/design/DAG0Q7jod9A/WBXnAO_7IR011VavmmhwwQ/edit?utm_content=DAG0Q7jod9A&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
